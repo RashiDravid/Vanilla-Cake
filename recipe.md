@@ -18,6 +18,8 @@ Now for the dry ingredients:-
 Add all purpose flour to our mixture of wet ingridients with sugar, salt and baking powder.
 Hint: now you have to start working fast.
 
+Now add the milk little by little to the mixture while mixing
+
 Mix all the ingridients make sure that they are all well incorperated.
 
 Butter your pan and pour your cake batter in it.
